@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[LinkedIn](https://ph.linkedin.com/in/neil-ryan-lipa-od-35a051217)
